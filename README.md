@@ -1,16 +1,14 @@
-## Hi there 👋
+<img width="384" height="350" alt="1767" src="https://github.com/user-attachments/assets/fdce97a7-9f13-4647-b34f-903724d2740d" />
 
-<!--
-**welcomehugz/welcomehugz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# <p align="center" > Welcome, angels. </p>
 
-Here are some ideas to get you started:
+<p align="center" > ⠀⠀⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 16 ⠀⠀ྀི
+⠀⠀⠀⠀♰⠀   𓈒  ⠀shi⠀ ﾉ⠀hir
+   ✙  age regressor . </p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  <img width="750" height="412" alt="1766" src="https://github.com/user-attachments/assets/af562650-8286-4e3f-94a8-9baaec617f77" />
+
+# <p align="center" > extra info</p>
+
+<p align="center"> ␥  dniuf or unless said on name,  iwecuf. susp DID 
+.ﾉ  safes  : adding soon   .𖥔 ݁ ˖.</p>
