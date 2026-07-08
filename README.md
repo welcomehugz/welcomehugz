@@ -11,4 +11,4 @@
 # <p align="center" > extra info</p>
 
 <p align="center"> ␥  dniuf or unless said on name,  iwecuf. susp DID 
-.ﾉ  safes  : adding soon   .𖥔 ݁ ˖.</p>
+.ﾉ  safes  : The nerv system < 3  .𖥔 ݁ ˖.</p>
