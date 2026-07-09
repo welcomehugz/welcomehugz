@@ -6,7 +6,11 @@
 ⠀⠀⠀⠀♰⠀   𓈒  ⠀shi⠀ ﾉ⠀hir
    ✙  age regressor . </p>
 
-  <img width="750" height="412" alt="1766" src="https://github.com/user-attachments/assets/af562650-8286-4e3f-94a8-9baaec617f77" />
+<p align="center" > <a href="kangelisyourangel.straw.page">
+  Strawpage .. ✙ </a>
+
+  
+<img width="750" height="412" alt="1766" src="https://github.com/user-attachments/assets/af562650-8286-4e3f-94a8-9baaec617f77" />
 
 # <p align="center" > extra info</p>
 
