@@ -10,7 +10,6 @@
 
 # <p align="center" > extra info</p>
 
-<p align="center"> ␥  dniuf or unless said on name,  iwecuf. susp DID 
-.ﾉ  safes  : The nerv system < 3  .𖥔 ݁ ˖.</p>
+<p align="center"> ␥  dniuf or unless said on name,  iwecuf. < 3  .𖥔 ݁ ˖.</p>
 
-<p align="center" > j word is jealous </p>
+<p align="center" > I can get very jealous at times ,  iayor .. susp bpd did + npd ??  </p>
