@@ -6,7 +6,7 @@
 ⠀⠀⠀⠀♰⠀   𓈒  ⠀shi⠀ ﾉ⠀hir
    ✙  age regressor . </p>
 
-<p align="center" > <a href="kangelisyourangel.straw.page">
+<p align="center" > <a href="https://kangelisyourangel.straw.page">
   Strawpage .. ✙ </a>
 
   
