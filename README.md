@@ -1,4 +1,7 @@
-<img width="384" height="350" alt="1767" src="https://github.com/user-attachments/assets/fdce97a7-9f13-4647-b34f-903724d2740d" />
+<img width="498" height="366" alt="1971" src="https://github.com/user-attachments/assets/a7ec0c68-5282-462c-888b-c9f817c5bb1a" />
+
+
+
 
 # <p align="center" > Welcome, angels. </p>
 
