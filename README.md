@@ -3,14 +3,20 @@
 
 
 
-# <p align="center" > Welcome, angels. </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=5EDFFF&center=true&width=435&lines=%E2%80%98Welcome+my+angels...!%E2%80%99"/> </p>
 
-<p align="center" > ⠀⠀⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 bodily 17 ⠀⠀ྀི
-⠀⠀⠀⠀♰⠀   𓈒  ⠀shi⠀ ﾉ⠀hir
-   ✙  age regressor . </p>
+
+<p align="center"> ${\textsf{\color{#FFBBD1}bodily 17 ! }}$ <img src="https://media.tenor.com/9xKQqrUN2x0AAAAj/nso-p-chan.gif" width="30">
+
+<p align="center">${\textsf{\color{#FEE6AB} he / him}}$<img src="https://media.tenor.com/vVaG_pl1T38AAAAj/star-pixel.gif" width="30">
+
+<p align="center"> ${\textsf{\color{#CBF0FF}it / it's  !}}$ <img src="https://media.tenor.com/AOR_nbTmCs0AAAAj/power-kangel.gif" width="110">
+
+
 
 <p align="center" > <a href="https://kangelisyourangel.straw.page">
   Strawpage .. ✙ </a>
+
 
   
 <img width="750" height="412" alt="1766" src="https://github.com/user-attachments/assets/af562650-8286-4e3f-94a8-9baaec617f77" />
