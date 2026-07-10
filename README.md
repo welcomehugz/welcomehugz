@@ -8,7 +8,11 @@
 
 <p align="center"> ${\textsf{\color{#FFBBD1}bodily 17 ! }}$ <img src="https://media.tenor.com/9xKQqrUN2x0AAAAj/nso-p-chan.gif" width="30">
 
-<p align="center">${\textsf{\color{#FEE6AB} he / him}}$<img src="https://media.tenor.com/vVaG_pl1T38AAAAj/star-pixel.gif" width="30">
+
+
+<p align="center"> <img src="https://media.tenor.com/vVaG_pl1T38AAAAj/star-pixel.gif" width="30">
+${\textsf{\color{#FEE6AB} he / him}}$
+
 
 <p align="center"> ${\textsf{\color{#CBF0FF}it / it's  !}}$ <img src="https://media.tenor.com/AOR_nbTmCs0AAAAj/power-kangel.gif" width="110">
 
