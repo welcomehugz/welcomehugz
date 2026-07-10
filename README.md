@@ -17,3 +17,6 @@
 <p align="center"> ␥  dniuf or unless said on name,  iwecuf. < 3  .𖥔 ݁ ˖.</p>
 
 <p align="center" > I can get very jealous at times ,  iayor .. susp bpd did + npd ??  </p>
+
+<img width="735" height="413" alt="1869" src="https://github.com/user-attachments/assets/767c5534-b757-4137-82ba-d75c87b32d79" />
+
