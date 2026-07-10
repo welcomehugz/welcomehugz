@@ -14,7 +14,7 @@
 ${\textsf{\color{#FEE6AB} he / him}}$
 
 
-<p align="center"> ${\textsf{\color{#CBF0FF}it / it's  !}}$ <img src="https://media.tenor.com/AOR_nbTmCs0AAAAj/power-kangel.gif" width="110">
+<p align="center"> ${\textsf{\color{#CBF0FF}it / it's  !}}$ <img src="https://media.tenor.com/xclA4aGqWdMAAAAj/discord-gif.gif" width="40">
 
 
 
