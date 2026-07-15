@@ -1,4 +1,4 @@
-<img width="498" height="366" alt="1971" src="https://github.com/user-attachments/assets/a7ec0c68-5282-462c-888b-c9f817c5bb1a" />
+<p align="center"> <img width="498" height="366" alt="1971" src="https://github.com/user-attachments/assets/a7ec0c68-5282-462c-888b-c9f817c5bb1a" />
 
 
 
@@ -27,13 +27,23 @@ ${\textsf{\color{#FEE6AB} he / him}}$
 
 # <p align="center" > extra info</p>
 
-<p align="center"> ␥  dniuf or unless said on name,  iwecuf.< 3  .𖥔 ݁ ˖.</p>
+<p align="center"> ${\textsf{\color{#FFBBD1} dniuf or unless said on name,  iwecuf.𖥔 }}$
 
-<p align="center" > I can get very jealous at times ,  iayor .. susp bpd+npd diagnosed DID   </p>
 
-<p align="center"> I hate being alone .. C+h VVVERY wanted.. Sign strawpage pls
+
+
+
+<p align="center" > ${\textsf{\color{#FEE6AB} I get jealous often, soz. Diagnosed DID, susp bpd+npd.}}$ </p>
+
+
+
+<p align="center"> ${\textsf{\color{#CBF0FF} c+h enc unless dni, dntuf on name.}}$
+
+
 
 <img width="735" height="413" alt="1869" src="https://github.com/user-attachments/assets/767c5534-b757-4137-82ba-d75c87b32d79" />
+
+
 
 </details>
    <details>
