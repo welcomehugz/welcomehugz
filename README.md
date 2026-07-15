@@ -27,9 +27,9 @@ ${\textsf{\color{#FEE6AB} he / him}}$
 
 # <p align="center" > extra info</p>
 
-<p align="center"> ␥  dniuf or unless said on name,  iwecuf. < 3  .𖥔 ݁ ˖.</p>
+<p align="center"> ␥  dniuf or unless said on name,  iwecuf.< 3  .𖥔 ݁ ˖.</p>
 
-<p align="center" > I can get very jealous at times ,  iayor .. susp bpd did + npd ??  </p>
+<p align="center" > I can get very jealous at times ,  iayor .. susp bpd+npd diagnosed DID   </p>
 
 <p align="center"> I hate being alone .. C+h VVVERY wanted.. Sign strawpage pls
 
