@@ -20,6 +20,8 @@ ${\textsf{\color{#FEE6AB} he / him}}$
 
 <p align="center" > <a href="https://kangelisyourangel.straw.page">
   Strawpage .. ✙ </a>
+  - <p align="center" > <a href="https://internetsys.straw.page">
+  Alter straw ! </a> 
 
 
   
