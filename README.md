@@ -6,7 +6,7 @@
 <p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=5EDFFF&center=true&width=435&lines=%E2%80%98Welcome+my+angels...!%E2%80%99"/> </p>
 
 
-<p align="center"> ${\textsf{\color{#FFBBD1}bodily 17 ! }}$ <img src="https://media.tenor.com/9xKQqrUN2x0AAAAj/nso-p-chan.gif" width="30">
+<p align="center"> ${\textsf{\color{#FFDEFFF}bodily 17 ! }}$ <img src="https://media.tenor.com/9xKQqrUN2x0AAAAj/nso-p-chan.gif" width="30">
 
 
 
