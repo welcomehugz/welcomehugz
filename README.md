@@ -1,49 +1,43 @@
-<p align="center"> <img width="498" height="366" alt="1971" src="https://github.com/user-attachments/assets/a7ec0c68-5282-462c-888b-c9f817c5bb1a" />
+<p align="center"> <img width="498" height="366" alt="1971" src="https://media1.tenor.com/m/pjAoafWbbasAAAAd/madoka-kaname-puella-magi-madoka-magica.gif" />
 
 
 
 
-<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=5EDFFF&center=true&width=435&lines=%E2%80%98Welcome+my+angels...!%E2%80%99"/> </p>
+<p align="center" > <img src="https://readme-typing-svg.demolab.com?font=BoldSerif&size=25&duration=2000&pause=10000&color=FFDEEF&center=true&width=435&lines=%E2%80%98Welcome+my+angels...!%E2%80%99"/> </p>
 
 
-<p align="center"> ${\textsf{\color{#FFDEFFF}bodily 17 ! }}$ <img src="https://media.tenor.com/9xKQqrUN2x0AAAAj/nso-p-chan.gif" width="30">
+<p align="center"> ${\textsf{\color{#FFFFF}bodily 17 ! }}$ <img src="https://media.tenor.com/9xKQqrUN2x0AAAAj/nso-p-chan.gif" width="30">
 
 
 
 <p align="center"> <img src="https://media.tenor.com/vVaG_pl1T38AAAAj/star-pixel.gif" width="30">
-${\textsf{\color{#FEE6AB} she / her}}$
+${\textsf{\color{#FFDEEF} she / her}}$
 
 
-<p align="center"> ${\textsf{\color{#CBF0FF}it / it's  !}}$ <img src="https://media.tenor.com/xclA4aGqWdMAAAAj/discord-gif.gif" width="40">
+<p align="center"> ${\textsf{\color{#fffff}it / it's  !}}$ <img src="https://media.tenor.com/xclA4aGqWdMAAAAj/discord-gif.gif" width="40">
 
-
-
-<p align="center" > <a href="https://kangelisyourangel.straw.page">
-  Strawpage .. ✙ </a>
-  - <p align="center" > <a href="https://internetsys.straw.page">
-  Alter straw ! </a> 
 
 
   
-<img width="750" height="412" alt="1766" src="https://github.com/user-attachments/assets/af562650-8286-4e3f-94a8-9baaec617f77" />
+<img width="750" height="412" alt="1766" src="https://media1.tenor.com/m/W-btfJNo0ewAAAAd/blossom-pink.gif" />
 
 # <p align="center" > extra info</p>
 
-<p align="center"> ${\textsf{\color{#FFBBD1} dniuf or unless said on name,  iwecuf.𖥔 }}$
+<p align="center"> ${\textsf{\color{#FFFFF} dniuf or unless said on name,  iwecuf.𖥔 }}$
 
 
 
 
 
-<p align="center" > ${\textsf{\color{#FEE6AB} I get jealous often, soz. Diagnosed DID, susp bpd+npd.}}$ </p>
+<p align="center" > ${\textsf{\color{#FFDEEF} I get jealous often, soz. Diagnosed DID, susp bpd+npd.}}$ </p>
 
 
 
-<p align="center"> ${\textsf{\color{#CBF0FF} c+h enc unless dni, dntuf on name.}}$
+<p align="center"> ${\textsf{\color{#fffff} c+h enc unless dni, dntuf on name.}}$
 
 
 
-<img width="735" height="413" alt="1869" src="https://github.com/user-attachments/assets/767c5534-b757-4137-82ba-d75c87b32d79" />
+<img width="735" height="413" alt="1869" src="https://media1.tenor.com/m/MTWJqo3ev_QAAAAd/kawaii-aesthetic-anime.gif" />
 
 
 
@@ -90,34 +84,3 @@ ${\textsf{\color{#FEE6AB} she / her}}$
 <img width="736" height="151" alt="1995" src="https://github.com/user-attachments/assets/1263b9df-15d4-49d4-9b13-e1b8f3a93ddd" />
 <img width="736" height="150" alt="1994" src="https://github.com/user-attachments/assets/57805a29-dce8-4da7-8614-e93aa9bbf0ae" />
 <img width="736" height="151" alt="1993" src="https://github.com/user-attachments/assets/65f919c5-e215-4fa4-a146-cfb4f2575082" />
-
-</details>
-   <details>
-        <summary> <p align="center" > <td>$${\color{#FDBBD1}\verb| my flags .. ♡|}$$</td></summary>
-
-<img width="735" height="490" alt="3946" src="https://github.com/user-attachments/assets/40284f89-317c-4c97-816f-20d1e4dd2006" />
-<img width="735" height="504" alt="3947" src="https://github.com/user-attachments/assets/0df6ad09-c122-4b82-b6cb-a61ef06fc471" />
-<img width="735" height="441" alt="3948" src="https://github.com/user-attachments/assets/a8b83a90-c387-4616-9572-f93d59849715" />
-<img width="736" height="414" alt="3949" src="https://github.com/user-attachments/assets/9a358c3c-0cc8-4443-864d-c342b76daea1" />
-<img width="736" height="424" alt="3950" src="https://github.com/user-attachments/assets/3f0bfcd8-cb8c-440a-93d9-1b9ecb50dcb0" />
-<img width="735" height="490" alt="3951" src="https://github.com/user-attachments/assets/eb542ec6-9414-4989-96d1-8a7ee1cddb04" />
-<img width="735" height="441" alt="3952" src="https://github.com/user-attachments/assets/ec723b42-ede1-4bbf-802f-b7381432b9b7" />
-<img width="487" height="304" alt="3953" src="https://github.com/user-attachments/assets/b184da53-4cb8-4367-92a7-1113c7f60e68" />
-<img width="736" height="478" alt="3954" src="https://github.com/user-attachments/assets/e2fecb46-cd66-4b57-a96f-877da02c2593" />
-<img width="375" height="221" alt="3955" src="https://github.com/user-attachments/assets/c487d69a-bb39-48a8-81eb-418572985684" />
-<img width="736" height="442" alt="3956" src="https://github.com/user-attachments/assets/36bfa42a-79a4-479e-b751-bba1d5bbedfe" />
-<img width="735" height="441" alt="3957" src="https://github.com/user-attachments/assets/bda787d8-a736-47f4-86cf-04227c2f8f1f" />
-<img width="736" height="441" alt="3958" src="https://github.com/user-attachments/assets/a00066bd-00ed-4314-9188-7b494a40b897" />
-<img width="736" height="441" alt="3959" src="https://github.com/user-attachments/assets/2535309d-2d76-4a37-8974-bb08c637ba37" />
-<img width="736" height="414" alt="3960" src="https://github.com/user-attachments/assets/2a3b9d6f-5c0b-4b33-8267-7282183bc686" />
-<img width="736" height="414" alt="3961" src="https://github.com/user-attachments/assets/f9ab39dd-8c25-4902-b251-4595b13a77d0" />
-<img width="735" height="457" alt="3962" src="https://github.com/user-attachments/assets/d4985aba-0bfd-4043-bb24-79fb10f35a8f" />
-<img width="735" height="441" alt="3963" src="https://github.com/user-attachments/assets/d6a45329-903e-46cb-80e9-645deba6fe2a" />
-<img width="732" height="436" alt="3964" src="https://github.com/user-attachments/assets/791e258a-fd9f-4baa-b890-86593d560a41" />
-<img width="735" height="441" alt="3965" src="https://github.com/user-attachments/assets/cb40a109-49b8-4ae4-9973-29b7d405a2d0" />
-<img width="735" height="490" alt="3966" src="https://github.com/user-attachments/assets/827b5e07-6aa2-4cc2-b297-1195e35c0a5e" />
-<img width="736" height="442" alt="3967" src="https://github.com/user-attachments/assets/0b399460-e414-433e-9049-c7b002763ffc" />
-<img width="736" height="477" alt="3968" src="https://github.com/user-attachments/assets/6742f573-f501-44b3-b860-910da6327b74" />
-<img width="736" height="441" alt="3969" src="https://github.com/user-attachments/assets/b2902c2b-d01c-4ea2-b0af-0b9b28b956a9" />
-<img width="735" height="415" alt="3970" src="https://github.com/user-attachments/assets/94ef996c-9dc7-42a2-9154-15c4c44d3b7a" />
-
