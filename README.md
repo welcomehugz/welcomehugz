@@ -11,7 +11,7 @@
 
 
 <p align="center"> <img src="https://media.tenor.com/vVaG_pl1T38AAAAj/star-pixel.gif" width="30">
-${\textsf{\color{#FEE6AB} he / him}}$
+${\textsf{\color{#FEE6AB} she / her}}$
 
 
 <p align="center"> ${\textsf{\color{#CBF0FF}it / it's  !}}$ <img src="https://media.tenor.com/xclA4aGqWdMAAAAj/discord-gif.gif" width="40">
